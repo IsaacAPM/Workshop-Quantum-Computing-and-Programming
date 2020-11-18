@@ -1,1 +1,1 @@
-# Workshop-Quantum-Computing-and-Programming
+[Imgur](https://i.imgur.com/LRUwKKN.jpg)
